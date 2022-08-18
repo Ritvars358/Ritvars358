@@ -1,5 +1,9 @@
 ### Hi there 👋
 
+17yr old boy from Latvia
+Studying in NTI Nacka, Sweden
+Born Different
+
 <!--
 **Ritvars358/Ritvars358** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
