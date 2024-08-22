@@ -3,8 +3,7 @@
 
 
 ### 18yr old boy from Latvia
-### Studying in NTI Nacka, Sweden
-### Bouta graduate this shithole
+### Studying in BTH University (software engineer)
 
 <!--
 **Ritvars358/Ritvars358** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
