@@ -2,7 +2,7 @@
 ## Ritvars Birovs
 
 
-### 18yr old boy from Latvia
+### 19yr old boy from Latvia
 ### Studying in BTH University (software engineer)
 
 <!--
