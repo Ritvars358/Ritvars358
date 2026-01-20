@@ -2,8 +2,8 @@
 ## Ritvars Birovs
 
 
-### 19yr old boy from Latvia
-### Studying in BTH University (software engineer)
+### 20yr old, Born in Latvia, raised in sweden.
+### Studying at BTH University (software engineer)
 
 <!--
 **Ritvars358/Ritvars358** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
